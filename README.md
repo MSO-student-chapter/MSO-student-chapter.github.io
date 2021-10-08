@@ -4,4 +4,4 @@ way to connect Mode Shift Omaha
 to an audience that can evoke
 that same change, on a smaller
 scale and for places that badly 
-needs it, our school campuses.
+need it, our school campuses.
